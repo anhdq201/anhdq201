@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning: **WebSec and Pentest Web!**
 
-- 📫 How to reach me: **anhdq48@gmail.com**
+- 📫 How to reach me: **@anhdq201**
 
 - ⚡ What I like to do: **I like so much music, football...and coding of course**
 
